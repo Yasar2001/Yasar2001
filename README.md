@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Yasar2001
-- 👀 I’m interested in software testing
+- 👀 I’m interested in software engineer.
 - 🌱 I’m currently learning technologies
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me mail id :u192537.rifathyasar@gmail.com
